@@ -1,1 +1,0 @@
-# shin.tien-shan.org
